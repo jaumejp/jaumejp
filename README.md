@@ -5,4 +5,4 @@
 - 💬 Basic knowledge of digital marketing and sales strategies through social media.
 - 📚 Languages: Native in Catalan and Spanish. Conversational in English
 - ⚡ My interests are CrossFit, psychology, blockchain, digital marketing, economics, podcasting.
-- 📭 Reach [me].(https://jaumejuan.net/)
+- 📭 Reach [me](https://jaumejuan.net/).
